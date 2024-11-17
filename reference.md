@@ -1,0 +1,3 @@
+- **Reference ⬇️**
+  - [Inspiration Video](https://youtu.be/S1gQxElolF4?si=nuk8wUa6qwjCwUdi)
+  - [Floor Vector](https://static.vecteezy.com/system/resources/previews/008/383/980/non_2x/abstract-seamless-pattern-white-gray-ceramic-tiles-floor-concrete-hexagonal-paver-blocks-design-geometric-mosaic-texture-for-the-decoration-of-the-bathroom-illustration-free-vector.jpg)
